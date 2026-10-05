@@ -1,0 +1,2 @@
+# Proyecto_final_Stravenski_Guzman_2026
+CineMax
